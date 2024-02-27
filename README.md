@@ -3,7 +3,7 @@
 **Web3 Developer**
 - **Email:** aydeshmukh@outlook.com
 - **GitHub:** [github.com/ash](https://github.com/almightypu5h)
-- **LinkedIn:** [Ashwin Deshmukh](www.linkedin.com/in/aswndsmk)
+- **LinkedIn:** [Ashwin Deshmukh](https://www.linkedin.com/in/aswndsmk/)
 
 ---
 
